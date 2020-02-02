@@ -1,0 +1,445 @@
+Ezekiel 1:6	And every one had four faces, and every one had four wings.
+Ezekiel 1:7	And their feet were straight feet; and the sole of their feet was like the sole of a calf's foot: and they sparkled like the colour of burnished brass.
+Ezekiel 1:8	And they had the hands of a man under their wings on their four sides; and they four had their faces and their wings.
+Ezekiel 1:9	Their wings were joined one to another; they turned not when they went; they went every one straight forward.
+Ezekiel 1:10	As for the likeness of their faces, they four had the face of a man, and the face of a lion, on the right side: and they four had the face of an ox on the left side; they four also had the face of an eagle.
+Ezekiel 1:11	Thus were their faces: and their wings were stretched upward; two wings of every one were joined one to another, and two covered their bodies.
+Ezekiel 1:12	And they went every one straight forward: whither the spirit was to go, they went; and they turned not when they went.
+Ezekiel 1:13	As for the likeness of the living creatures, their appearance was like burning coals of fire, and like the appearance of lamps: it went up and down among the living creatures; and the fire was bright, and out of the fire went forth lightning.
+Ezekiel 1:14	And the living creatures ran and returned as the appearance of a flash of lightning.
+Ezekiel 1:15	Now as I beheld the living creatures, behold one wheel upon the earth by the living creatures, with his four faces.
+Ezekiel 1:16	The appearance of the wheels and their work was like unto the colour of a beryl: and they four had one likeness: and their appearance and their work was as it were a wheel in the middle of a wheel.
+Ezekiel 1:17	When they went, they went upon their four sides: and they turned not when they went.
+Ezekiel 1:18	As for their rings, they were so high that they were dreadful; and their rings were full of eyes round about them four.
+Ezekiel 1:19	And when the living creatures went, the wheels went by them: and when the living creatures were lifted up from the earth, the wheels were lifted up.
+Ezekiel 1:20	Whithersoever the spirit was to go, they went, thither was their spirit to go; and the wheels were lifted up over against them: for the spirit of the living creature was in the wheels.
+Ezekiel 1:21	When those went, these went; and when those stood, these stood; and when those were lifted up from the earth, the wheels were lifted up over against them: for the spirit of the living creature was in the wheels.
+Ezekiel 1:22	And the likeness of the firmament upon the heads of the living creature was as the colour of the terrible crystal, stretched forth over their heads above.
+Ezekiel 1:23	And under the firmament were their wings straight, the one toward the other: every one had two, which covered on this side, and every one had two, which covered on that side, their bodies.
+Ezekiel 1:24	And when they went, I heard the noise of their wings, like the noise of great waters, as the voice of the Almighty, the voice of speech, as the noise of an host: when they stood, they let down their wings.
+Ezekiel 1:25	And there was a voice from the firmament that was over their heads, when they stood, and had let down their wings.
+Ezekiel 1:26	And above the firmament that was over their heads was the likeness of a throne, as the appearance of a sapphire stone: and upon the likeness of the throne was the likeness as the appearance of a man above upon it.
+Ezekiel 1:27	And I saw as the colour of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appearance of fire, and it had brightness round about.
+Ezekiel 1:28	As the appearance of the bow that is in the cloud in the day of rain, so was the appearance of the brightness round about. This was the appearance of the likeness of the glory of the LORD. And when I saw it, I fell upon my face, and I heard a voice of one that spake.
+Ezekiel 2:1	And he said unto me, Son of man, stand upon thy feet, and I will speak unto thee.
+Ezekiel 2:2	And the spirit entered into me when he spake unto me, and set me upon my feet, that I heard him that spake unto me.
+Ezekiel 2:3	And he said unto me, Son of man, I send thee to the children of Israel, to a rebellious nation that hath rebelled against me: they and their fathers have transgressed against me, even unto this very day.
+Ezekiel 2:4	For they are impudent children and stiffhearted. I do send thee unto them; and thou shalt say unto them, Thus saith the Lord GOD.
+Ezekiel 2:5	And they, whether they will hear, or whether they will forbear, (for they are a rebellious house,) yet shall know that there hath been a prophet among them.
+Ezekiel 2:6	And thou, son of man, be not afraid of them, neither be afraid of their words, though briers and thorns be with thee, and thou dost dwell among scorpions: be not afraid of their words, nor be dismayed at their looks, though they be a rebellious house.
+Ezekiel 2:7	And thou shalt speak my words unto them, whether they will hear, or whether they will forbear: for they are most rebellious.
+Ezekiel 2:8	But thou, son of man, hear what I say unto thee; Be not thou rebellious like that rebellious house: open thy mouth, and eat that I give thee.
+Ezekiel 2:9	And when I looked, behold, an hand was sent unto me; and, lo, a roll of a book was therein;
+Ezekiel 2:10	And he spread it before me; and it was written within and without: and there was written therein lamentations, and mourning, and woe.
+Ezekiel 3:1	Moreover he said unto me, Son of man, eat that thou findest; eat this roll, and go speak unto the house of Israel.
+Ezekiel 3:2	So I opened my mouth, and he caused me to eat that roll.
+Ezekiel 3:3	And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I eat it; and it was in my mouth as honey for sweetness.
+Ezekiel 3:4	And he said unto me, Son of man, go, get thee unto the house of Israel, and speak with my words unto them.
+Ezekiel 3:5	For thou art not sent to a people of a strange speech and of an hard language, but to the house of Israel;
+Ezekiel 3:6	Not to many people of a strange speech and of an hard language, whose words thou canst not understand. Surely, had I sent thee to them, they would have hearkened unto thee.
+Ezekiel 3:7	But the house of Israel will not hearken unto thee; for they will not hearken unto me: for all the house of Israel are impudent and hardhearted.
+Ezekiel 3:8	Behold, I have made thy face strong against their faces, and thy forehead strong against their foreheads.
+Ezekiel 3:9	As an adamant harder than flint have I made thy forehead: fear them not, neither be dismayed at their looks, though they be a rebellious house.
+Ezekiel 3:10	Moreover he said unto me, Son of man, all my words that I shall speak unto thee receive in thine heart, and hear with thine ears.
+Ezekiel 3:11	And go, get thee to them of the captivity, unto the children of thy people, and speak unto them, and tell them, Thus saith the Lord GOD; whether they will hear, or whether they will forbear.
+Ezekiel 3:12	Then the spirit took me up, and I heard behind me a voice of a great rushing, saying, Blessed be the glory of the LORD from his place.
+Ezekiel 3:13	I heard also the noise of the wings of the living creatures that touched one another, and the noise of the wheels over against them, and a noise of a great rushing.
+Ezekiel 3:14	So the spirit lifted me up, and took me away, and I went in bitterness, in the heat of my spirit; but the hand of the LORD was strong upon me.
+Ezekiel 3:15	Then I came to them of the captivity at Telabib, that dwelt by the river of Chebar, and I sat where they sat, and remained there astonished among them seven days.
+Ezekiel 3:16	And it came to pass at the end of seven days, that the word of the LORD came unto me, saying,
+Ezekiel 3:17	Son of man, I have made thee a watchman unto the house of Israel: therefore hear the word at my mouth, and give them warning from me.
+Ezekiel 3:18	When I say unto the wicked, Thou shalt surely die; and thou givest him not warning, nor speakest to warn the wicked from his wicked way, to save his life; the same wicked man shall die in his iniquity; but his blood will I require at thine hand.
+Ezekiel 3:19	Yet if thou warn the wicked, and he turn not from his wickedness, nor from his wicked way, he shall die in his iniquity; but thou hast delivered thy soul.
+Ezekiel 3:20	Again, When a righteous man doth turn from his righteousness, and commit iniquity, and I lay a stumbling-block before him, he shall die: because thou hast not given him warning, he shall die in his sin, and his righteousness which he hath done shall not be remembered; but his blood will I require at thine hand.
+Ezekiel 3:21	Nevertheless if thou warn the righteous man, that the righteous sin not, and he doth not sin, he shall surely live, because he is warned; also thou hast delivered thy soul.
+Ezekiel 3:22	And the hand of the LORD was there upon me; and he said unto me, Arise, go forth into the plain, and I will there talk with thee.
+Ezekiel 3:23	Then I arose, and went forth into the plain: and, behold, the glory of the LORD stood there, as the glory which I saw by the river of Chebar: and I fell on my face.
+Ezekiel 3:24	Then the spirit entered into me, and set me upon my feet, and spake with me, and said unto me, Go, shut thyself within thine house.
+Ezekiel 3:25	But thou, O son of man, behold, they shall put bands upon thee, and shall bind thee with them, and thou shalt not go out among them:
+Ezekiel 3:26	And I will make thy tongue cleave to the roof of thy mouth, that thou shalt be dumb, and shalt not be to them a reprover: for they are a rebellious house.
+Ezekiel 3:27	But when I speak with thee, I will open thy mouth, and thou shalt say unto them, Thus saith the Lord GOD; He that heareth, let him hear; and he that forbeareth, let him forbear: for they are a rebellious house.
+Ezekiel 4:1	Thou also, son of man, take thee a tile, and lay it before thee, and pourtray upon it the city, even Jerusalem:
+Ezekiel 4:2	And lay siege against it, and build a fort against it, and cast a mount against it; set the camp also against it, and set battering rams against it round about.
+Ezekiel 4:3	Moreover take thou unto thee an iron pan, and set it for a wall of iron between thee and the city: and set thy face against it, and it shall be besieged, and thou shalt lay siege against it. This shall be a sign to the house of Israel.
+Ezekiel 4:4	Lie thou also upon thy left side, and lay the iniquity of the house of Israel upon it: according to the number of the days that thou shalt lie upon it thou shalt bear their iniquity.
+Ezekiel 4:5	For I have laid upon thee the years of their iniquity, according to the number of the days, three hundred and ninety days: so shalt thou bear the iniquity of the house of Israel.
+Ezekiel 4:6	And when thou hast accomplished them, lie again on thy right side, and thou shalt bear the iniquity of the house of Judah forty days: I have appointed thee each day for a year.
+Ezekiel 4:7	Therefore thou shalt set thy face toward the siege of Jerusalem, and thine arm shall be uncovered, and thou shalt prophesy against it.
+Ezekiel 4:8	And, behold, I will lay bands upon thee, and thou shalt not turn thee from one side to another, till thou hast ended the days of thy siege.
+Ezekiel 4:9	Take thou also unto thee wheat, and barley, and beans, and lentiles, and millet, and fitches, and put them in one vessel, and make thee bread thereof, according to the number of the days that thou shalt lie upon thy side, three hundred and ninety days shalt thou eat thereof.
+Ezekiel 4:10	And thy meat which thou shalt eat shall be by weight, twenty shekels a day: from time to time shalt thou eat it.
+Ezekiel 4:11	Thou shalt drink also water by measure, the sixth part of an hin: from time to time shalt thou drink.
+Ezekiel 4:12	And thou shalt eat it as barley cakes, and thou shalt bake it with dung that cometh out of man, in their sight.
+Ezekiel 4:13	And the LORD said, Even thus shall the children of Israel eat their defiled bread among the Gentiles, whither I will drive them.
+Ezekiel 4:14	Then said I, Ah Lord GOD! behold, my soul hath not been polluted: for from my youth up even till now have I not eaten of that which dieth of itself, or is torn in pieces; neither came there abominable flesh into my mouth.
+Ezekiel 4:15	Then he said unto me, Lo, I have given thee cow's dung for man's dung, and thou shalt prepare thy bread therewith.
+Ezekiel 4:16	Moreover he said unto me, Son of man, behold, I will break the staff of bread in Jerusalem: and they shall eat bread by weight, and with care; and they shall drink water by measure, and with astonishment:
+Ezekiel 4:17	That they may want bread and water, and be astonied one with another, and consume away for their iniquity.
+Ezekiel 5:1	And thou, son of man, take thee a sharp knife, take thee a barber's razor, and cause it to pass upon thine head and upon thy beard: then take thee balances to weigh, and divide the hair.
+Ezekiel 5:2	Thou shalt burn with fire a third part in the midst of the city, when the days of the siege are fulfilled: and thou shalt take a third part, and smite about it with a knife: and a third part thou shalt scatter in the wind; and I will draw out a sword after them.
+Ezekiel 5:3	Thou shalt also take thereof a few in number, and bind them in thy skirts.
+Ezekiel 5:4	Then take of them again, and cast them into the midst of the fire, and burn them in the fire; for thereof shall a fire come forth into all the house of Israel.
+Ezekiel 5:5	Thus saith the Lord GOD; This is Jerusalem: I have set it in the midst of the nations and countries that are round about her.
+Ezekiel 5:6	And she hath changed my judgments into wickedness more than the nations, and my statutes more than the countries that are round about her: for they have refused my judgments and my statutes, they have not walked in them.
+Ezekiel 5:7	Therefore thus saith the Lord GOD; Because ye multiplied more than the nations that are round about you, and have not walked in my statutes, neither have kept my judgments, neither have done according to the judgments of the nations that are round about you;
+Ezekiel 5:8	Therefore thus saith the Lord GOD; Behold, I, even I, am against thee, and will execute judgments in the midst of thee in the sight of the nations.
+Ezekiel 5:9	And I will do in thee that which I have not done, and whereunto I will not do any more the like, because of all thine abominations.
+Ezekiel 5:10	Therefore the fathers shall eat the sons in the midst of thee, and the sons shall eat their fathers; and I will execute judgments in thee, and the whole remnant of thee will I scatter into all the winds.
+Ezekiel 5:11	Wherefore, as I live, saith the Lord GOD; Surely, because thou hast defiled my sanctuary with all thy detestable things, and with all thine abominations, therefore will I also diminish thee; neither shall mine eye spare, neither will I have any pity.
+Ezekiel 5:12	A third part of thee shall die with the pestilence, and with famine shall they be consumed in the midst of thee: and a third part shall fall by the sword round about thee; and I will scatter a third part into all the winds, and I will draw out a sword after them.
+Ezekiel 5:13	Thus shall mine anger be accomplished, and I will cause my fury to rest upon them, and I will be comforted: and they shall know that I the LORD have spoken it in my zeal, when I have accomplished my fury in them.
+Ezekiel 5:14	Moreover I will make thee waste, and a reproach among the nations that are round about thee, in the sight of all that pass by.
+Ezekiel 5:15	So it shall be a reproach and a taunt, an instruction and an astonishment unto the nations that are round about thee, when I shall execute judgments in thee in anger and in fury and in furious rebukes. I the LORD have spoken it.
+Ezekiel 5:16	When I shall send upon them the evil arrows of famine, which shall be for their destruction, and which I will send to destroy you: and I will increase the famine upon you, and will break your staff of bread:
+Ezekiel 5:17	So will I send upon you famine and evil beasts, and they shall bereave thee: and pestilence and blood shall pass through thee; and I will bring the sword upon thee. I the LORD have spoken it.
+Ezekiel 6:1	And the word of the LORD came unto me, saying,
+Ezekiel 6:2	Son of man, set thy face toward the mountains of Israel, and prophesy against them,
+Ezekiel 6:3	And say, Ye mountains of Israel, hear the word of the Lord GOD; Thus saith the Lord GOD to the mountains, and to the hills, to the rivers, and to the valleys; Behold, I, even I, will bring a sword upon you, and I will destroy your high places.
+Ezekiel 6:4	And your altars shall be desolate, and your images shall be broken: and I will cast down your slain men before your idols.
+Ezekiel 6:5	And I will lay the dead carcases of the children of Israel before their idols; and I will scatter your bones round about your altars.
+Ezekiel 6:6	In all your dwellingplaces the cities shall be laid waste, and the high places shall be desolate; that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your images may be cut down, and your works may be abolished.
+Ezekiel 6:7	And the slain shall fall in the midst of you, and ye shall know that I am the LORD.
+Ezekiel 6:8	Yet will I leave a remnant, that ye may have some that shall escape the sword among the nations, when ye shall be scattered through the countries.
+Ezekiel 6:9	And they that escape of you shall remember me among the nations whither they shall be carried captives, because I am broken with their whorish heart, which hath departed from me, and with their eyes, which go a whoring after their idols: and they shall lothe themselves for the evils which they have committed in all their abominations.
+Ezekiel 6:10	And they shall know that I am the LORD, and that I have not said in vain that I would do this evil unto them.
+Ezekiel 6:11	Thus saith the Lord GOD; Smite with thine hand, and stamp with thy foot, and say, Alas for all the evil abominations of the house of Israel! for they shall fall by the sword, by the famine, and by the pestilence.
+Ezekiel 6:12	He that is far off shall die of the pestilence; and he that is near shall fall by the sword; and he that remaineth and is besieged shall die by the famine: thus will I accomplish my fury upon them.
+Ezekiel 6:13	Then shall ye know that I am the LORD, when their slain men shall be among their idols round about their altars, upon every high hill, in all the tops of the mountains, and under every green tree, and under every thick oak, the place where they did offer sweet savour to all their idols.
+Ezekiel 6:14	So will I stretch out my hand upon them, and make the land desolate, yea, more desolate than the wilderness toward Diblath, in all their habitations: and they shall know that I am the LORD.
+Ezekiel 7:1	Moreover the word of the LORD came unto me, saying,
+Ezekiel 7:2	Also, thou son of man, thus saith the Lord GOD unto the land of Israel; An end, the end is come upon the four corners of the land.
+Ezekiel 7:3	Now is the end come upon thee, and I will send mine anger upon thee, and will judge thee according to thy ways, and will recompense upon thee all thine abominations.
+Ezekiel 7:4	And mine eye shall not spare thee, neither will I have pity: but I will recompense thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall know that I am the LORD.
+Ezekiel 7:5	Thus saith the Lord GOD; An evil, an only evil, behold, is come.
+Ezekiel 7:6	An end is come, the end is come: it watcheth for thee; behold, it is come.
+Ezekiel 7:7	The morning is come unto thee, O thou that dwellest in the land: the time is come, the day of trouble is near, and not the sounding again of the mountains.
+Ezekiel 7:8	Now will I shortly pour out my fury upon thee, and accomplish mine anger upon thee: and I will judge thee according to thy ways, and will recompense thee for all thine abominations.
+Ezekiel 7:9	And mine eye shall not spare, neither will I have pity: I will recompense thee according to thy ways and thine abominations that are in the midst of thee; and ye shall know that I am the LORD that smiteth.
+Ezekiel 7:10	Behold the day, behold, it is come: the morning is gone forth; the rod hath blossomed, pride hath budded.
+Ezekiel 7:11	Violence is risen up into a rod of wickedness: none of them shall remain, nor of their multitude, nor of any of their's: neither shall there be wailing for them.
+Ezekiel 7:12	The time is come, the day draweth near: let not the buyer rejoice, nor the seller mourn: for wrath is upon all the multitude thereof.
+Ezekiel 7:13	For the seller shall not return to that which is sold, although they were yet alive: for the vision is touching the whole multitude thereof, which shall not return; neither shall any strengthen himself in the iniquity of his life.
+Ezekiel 7:14	They have blown the trumpet, even to make all ready; but none goeth to the battle: for my wrath is upon all the multitude thereof.
+Ezekiel 7:15	The sword is without, and the pestilence and the famine within: he that is in the field shall die with the sword; and he that is in the city, famine and pestilence shall devour him.
+Ezekiel 7:16	But they that escape of them shall escape, and shall be on the mountains like doves of the valleys, all of them mourning, every one for his iniquity.
+Ezekiel 7:17	All hands shall be feeble, and all knees shall be weak as water.
+Ezekiel 7:18	They shall also gird themselves with sackcloth, and horror shall cover them; and shame shall be upon all faces, and baldness upon all their heads.
+Ezekiel 7:19	They shall cast their silver in the streets, and their gold shall be removed: their silver and their gold shall not be able to deliver them in the day of the wrath of the LORD: they shall not satisfy their souls, neither fill their bowels: because it is the stumblingblock of their iniquity.
+Ezekiel 7:20	As for the beauty of his ornament, he set it in majesty: but they made the images of their abominations and of their detestable things therein: therefore have I set it far from them.
+Ezekiel 7:21	And I will give it into the hands of the strangers for a prey, and to the wicked of the earth for a spoil; and they shall pollute it.
+Ezekiel 7:22	My face will I turn also from them, and they shall pollute my secret place: for the robbers shall enter into it, and defile it.
+Ezekiel 7:23	Make a chain: for the land is full of bloody crimes, and the city is full of violence.
+Ezekiel 7:24	Wherefore I will bring the worst of the heathen, and they shall possess their houses: I will also make the pomp of the strong to cease; and their holy places shall be defiled.
+Ezekiel 7:25	Destruction cometh; and they shall seek peace, and there shall be none.
+Ezekiel 7:26	Mischief shall come upon mischief, and rumour shall be upon rumour; then shall they seek a vision of the prophet; but the law shall perish from the priest, and counsel from the ancients.
+Ezekiel 7:27	The king shall mourn, and the prince shall be clothed with desolation, and the hands of the people of the land shall be troubled: I will do unto them after their way, and according to their deserts will I judge them; and they shall know that I am the LORD.
+Ezekiel 8:1	And it came to pass in the sixth year, in the sixth month, in the fifth day of the month, as I sat in mine house, and the elders of Judah sat before me, that the hand of the Lord GOD fell there upon me.
+Ezekiel 8:2	Then I beheld, and lo a likeness as the appearance of fire: from the appearance of his loins even downward, fire; and from his loins even upward, as the appearance of brightness, as the colour of amber.
+Ezekiel 8:3	And he put forth the form of an hand, and took me by a lock of mine head; and the spirit lifted me up between the earth and the heaven, and brought me in the visions of God to Jerusalem, to the door of the inner gate that looketh toward the north; where was the seat of the image of jealousy, which provoketh to jealousy.
+Ezekiel 8:4	And, behold, the glory of the God of Israel was there, according to the vision that I saw in the plain.
+Ezekiel 8:5	Then said he unto me, Son of man, lift up thine eyes now the way toward the north. So I lifted up mine eyes the way toward the north, and behold northward at the gate of the altar this image of jealousy in the entry.
+Ezekiel 8:6	He said furthermore unto me, Son of man, seest thou what they do? even the great abominations that the house of Israel committeth here, that I should go far off from my sanctuary? but turn thee yet again, and thou shalt see greater abominations.
+Ezekiel 8:7	And he brought me to the door of the court; and when I looked, behold a hole in the wall.
+Ezekiel 8:8	Then said he unto me, Son of man, dig now in the wall: and when I had digged in the wall, behold a door.
+Ezekiel 8:9	And he said unto me, Go in, and behold the wicked abominations that they do here.
+Ezekiel 8:10	So I went in and saw; and behold every form of creeping things, and abominable beasts, and all the idols of the house of Israel, pourtrayed upon the wall round about.
+Ezekiel 8:11	And there stood before them seventy men of the ancients of the house of Israel, and in the midst of them stood Jaazaniah the son of Shaphan, with every man his censer in his hand; and a thick cloud of incense went up.
+Ezekiel 8:12	Then said he unto me, Son of man, hast thou seen what the ancients of the house of Israel do in the dark, every man in the chambers of his imagery? for they say, the LORD seeth us not; the LORD hath forsaken the earth.
+Ezekiel 8:13	He said also unto me, Turn thee yet again, and thou shalt see greater abominations that they do.
+Ezekiel 8:14	Then he brought me to the door of the gate of the LORD's house which was toward the north; and, behold, there sat women weeping for Tammuz.
+Ezekiel 8:15	Then said he unto me, Hast thou seen this, O son of man? turn thee yet again, and thou shalt see greater abominations than these.
+Ezekiel 8:16	And he brought me into the inner court of the LORD's house, and, behold, at the door of the temple of the LORD, between the porch and the altar, were about five and twenty men, with their backs toward the temple of the LORD, and their faces toward the east; and they worshipped the sun toward the east.
+Ezekiel 8:17	Then he said unto me, Hast thou seen this, O son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? for they have filled the land with violence, and have returned to provoke me to anger: and, lo, they put the branch to their nose.
+Ezekiel 8:18	Therefore will I also deal in fury: mine eye shall not spare, neither will I have pity: and though they cry in mine ears with a loud voice, yet will I not hear them.
+Ezekiel 9:1	He cried also in mine ears with a loud voice, saying, Cause them that have charge over the city to draw near, even every man with his destroying weapon in his hand.
+Ezekiel 9:2	And, behold, six men came from the way of the higher gate, which lieth toward the north, and every man a slaughter weapon in his hand; and one man among them was clothed with linen, with a writer's inkhorn by his side: and they went in, and stood beside the brasen altar.
+Ezekiel 9:3	And the glory of the God of Israel was gone up from the cherub, whereupon he was, to the threshold of the house. And he called to the man clothed with linen, which had the writer's inkhorn by his side;
+Ezekiel 9:4	And the LORD said unto him, Go through the midst of the city, through the midst of Jerusalem, and set a mark upon the foreheads of the men that sigh and that cry for all the abominations that be done in the midst thereof.
+Ezekiel 9:5	And to the others he said in mine hearing, Go ye after him through the city, and smite: let not your eye spare, neither have ye pity:
+Ezekiel 9:6	Slay utterly old and young, both maids, and little children, and women: but come not near any man upon whom is the mark; and begin at my sanctuary. Then they began at the ancient men which were before the house.
+Ezekiel 9:7	And he said unto them, Defile the house, and fill the courts with the slain: go ye forth. And they went forth, and slew in the city.
+Ezekiel 9:8	And it came to pass, while they were slaying them, and I was left, that I fell upon my face, and cried, and said, Ah Lord GOD! wilt thou destroy all the residue of Israel in thy pouring out of thy fury upon Jerusalem?
+Ezekiel 9:9	Then said he unto me, The iniquity of the house of Israel and Judah is exceeding great, and the land is full of blood, and the city full of perverseness: for they say, The LORD hath forsaken the earth, and the LORD seeth not.
+Ezekiel 9:10	And as for me also, mine eye shall not spare, neither will I have pity, but I will recompense their way upon their head.
+Ezekiel 9:11	And, behold, the man clothed with linen, which had the inkhorn by his side, reported the matter, saying, I have done as thou hast commanded me.
+Ezekiel 10:1	Then I looked, and, behold, in the firmament that was above the head of the cherubims there appeared over them as it were a sapphire stone, as the appearance of the likeness of a throne.
+Ezekiel 10:2	And he spake unto the man clothed with linen, and said, Go in between the wheels, even under the cherub, and fill thine hand with coals of fire from between the cherubims, and scatter them over the city. And he went in in my sight.
+Ezekiel 10:3	Now the cherubims stood on the right side of the house, when the man went in; and the cloud filled the inner court.
+Ezekiel 10:4	Then the glory of the LORD went up from the cherub, and stood over the threshold of the house; and the house was filled with the cloud, and the court was full of the brightness of the LORD's glory.
+Ezekiel 10:5	And the sound of the cherubims' wings was heard even to the outer court, as the voice of the Almighty God when he speaketh.
+Ezekiel 10:6	And it came to pass, that when he had commanded the man clothed with linen, saying, Take fire from between the wheels, from between the cherubims; then he went in, and stood beside the wheels.
+Ezekiel 10:7	And one cherub stretched forth his hand from between the cherubims unto the fire that was between the cherubims, and took thereof, and put it into the hands of him that was clothed with linen: who took it, and went out.
+Ezekiel 10:8	And there appeared in the cherubims the form of a man's hand under their wings.
+Ezekiel 10:9	And when I looked, behold the four wheels by the cherubims, one wheel by one cherub, and another wheel by another cherub: and the appearance of the wheels was as the colour of a beryl stone.
+Ezekiel 10:10	And as for their appearances, they four had one likeness, as if a wheel had been in the midst of a wheel.
+Ezekiel 10:11	When they went, they went upon their four sides; they turned not as they went, but to the place whither the head looked they followed it; they turned not as they went.
+Ezekiel 10:12	And their whole body, and their backs, and their hands, and their wings, and the wheels, were full of eyes round about, even the wheels that they four had.
+Ezekiel 10:13	As for the wheels, it was cried unto them in my hearing, O wheel.
+Ezekiel 10:14	And every one had four faces: the first face was the face of a cherub, and the second face was the face of a man, and the third the face of a lion, and the fourth the face of an eagle.
+Ezekiel 10:15	And the cherubims were lifted up. This is the living creature that I saw by the river of Chebar.
+Ezekiel 10:16	And when the cherubims went, the wheels went by them: and when the cherubims lifted up their wings to mount up from the earth, the same wheels also turned not from beside them.
+Ezekiel 10:17	When they stood, these stood; and when they were lifted up, these lifted up themselves also: for the spirit of the living creature was in them.
+Ezekiel 10:18	Then the glory of the LORD departed from off the threshold of the house, and stood over the cherubims.
+Ezekiel 10:19	And the cherubims lifted up their wings, and mounted up from the earth in my sight: when they went out, the wheels also were beside them, and every one stood at the door of the east gate of the LORD's house; and the glory of the God of Israel was over them above.
+Ezekiel 10:20	This is the living creature that I saw under the God of Israel by the river of Chebar; and I knew that they were the cherubims.
+Ezekiel 10:21	Every one had four faces apiece, and every one four wings; and the likeness of the hands of a man was under their wings.
+Ezekiel 10:22	And the likeness of their faces was the same faces which I saw by the river of Chebar, their appearances and themselves: they went every one straight forward.
+Ezekiel 11:1	Moreover the spirit lifted me up, and brought me unto the east gate of the LORD's house, which looketh eastward: and behold at the door of the gate five and twenty men; among whom I saw Jaazaniah the son of Azur, and Pelatiah the son of Benaiah, princes of the people.
+Ezekiel 11:2	Then said he unto me, Son of man, these are the men that devise mischief, and give wicked counsel in this city:
+Ezekiel 11:3	Which say, It is not near; let us build houses: this city is the caldron, and we be the flesh.
+Ezekiel 11:4	Therefore prophesy against them, prophesy, O son of man.
+Ezekiel 11:5	And the Spirit of the LORD fell upon me, and said unto me, Speak; Thus saith the LORD; Thus have ye said, O house of Israel: for I know the things that come into your mind, every one of them.
+Ezekiel 11:6	Ye have multiplied your slain in this city, and ye have filled the streets thereof with the slain.
+Ezekiel 11:7	Therefore thus saith the Lord GOD; Your slain whom ye have laid in the midst of it, they are the flesh, and this city is the caldron: but I will bring you forth out of the midst of it.
+Ezekiel 11:8	Ye have feared the sword; and I will bring a sword upon you, saith the Lord GOD.
+Ezekiel 11:9	And I will bring you out of the midst thereof, and deliver you into the hands of strangers, and will execute judgments among you.
+Ezekiel 11:10	Ye shall fall by the sword; I will judge you in the border of Israel; and ye shall know that I am the LORD.
+Ezekiel 11:11	This city shall not be your caldron, neither shall ye be the flesh in the midst thereof; but I will judge you in the border of Israel:
+Ezekiel 11:12	And ye shall know that I am the LORD: for ye have not walked in my statutes, neither executed my judgments, but have done after the manners of the heathen that are round about you.
+Ezekiel 11:13	And it came to pass, when I prophesied, that Pelatiah the son of Benaiah died. Then fell I down upon my face, and cried with a loud voice, and said, Ah Lord GOD! wilt thou make a full end of the remnant of Israel?
+Ezekiel 11:14	Again the word of the LORD came unto me, saying,
+Ezekiel 11:15	Son of man, thy brethren, even thy brethren, the men of thy kindred, and all the house of Israel wholly, are they unto whom the inhabitants of Jerusalem have said, Get you far from the LORD: unto us is this land given in possession.
+Ezekiel 11:16	Therefore say, Thus saith the Lord GOD; Although I have cast them far off among the heathen, and although I have scattered them among the countries, yet will I be to them as a little sanctuary in the countries where they shall come.
+Ezekiel 11:17	Therefore say, Thus saith the Lord GOD; I will even gather you from the people, and assemble you out of the countries where ye have been scattered, and I will give you the land of Israel.
+Ezekiel 11:18	And they shall come thither, and they shall take away all the detestable things thereof and all the abominations thereof from thence.
+Ezekiel 11:19	And I will give them one heart, and I will put a new spirit within you; and I will take the stony heart out of their flesh, and will give them an heart of flesh:
+Ezekiel 11:20	That they may walk in my statutes, and keep mine ordinances, and do them: and they shall be my people, and I will be their God.
+Ezekiel 11:21	But as for them whose heart walketh after the heart of their detestable things and their abominations, I will recompense their way upon their own heads, saith the Lord GOD.
+Ezekiel 11:22	Then did the cherubims lift up their wings, and the wheels beside them; and the glory of the God of Israel was over them above.
+Ezekiel 11:23	And the glory of the LORD went up from the midst of the city, and stood upon the mountain which is on the east side of the city.
+Ezekiel 11:24	Afterwards the spirit took me up, and brought me in a vision by the Spirit of God into Chaldea, to them of the captivity. So the vision that I had seen went up from me.
+Ezekiel 11:25	Then I spake unto them of the captivity all the things that the LORD had shewed me.
+Ezekiel 12:1	The word of the LORD also came unto me, saying,
+Ezekiel 12:2	Son of man, thou dwellest in the midst of a rebellious house, which have eyes to see, and see not; they have ears to hear, and hear not: for they are a rebellious house.
+Ezekiel 12:3	Therefore, thou son of man, prepare thee stuff for removing, and remove by day in their sight; and thou shalt remove from thy place to another place in their sight: it may be they will consider, though they be a rebellious house.
+Ezekiel 12:4	Then shalt thou bring forth thy stuff by day in their sight, as stuff for removing: and thou shalt go forth at even in their sight, as they that go forth into captivity.
+Ezekiel 12:5	Dig thou through the wall in their sight, and carry out thereby.
+Ezekiel 12:6	In their sight shalt thou bear it upon thy shoulders, and carry it forth in the twilight: thou shalt cover thy face, that thou see not the ground: for I have set thee for a sign unto the house of Israel.
+Ezekiel 12:7	And I did so as I was commanded: I brought forth my stuff by day, as stuff for captivity, and in the even I digged through the wall with mine hand; I brought it forth in the twilight, and I bare it upon my shoulder in their sight.
+Ezekiel 12:8	And in the morning came the word of the LORD unto me, saying,
+Ezekiel 12:9	Son of man, hath not the house of Israel, the rebellious house, said unto thee, What doest thou?
+Ezekiel 12:10	Say thou unto them, Thus saith the Lord GOD; This burden concerneth the prince in Jerusalem, and all the house of Israel that are among them.
+Ezekiel 12:11	Say, I am your sign: like as I have done, so shall it be done unto them: they shall remove and go into captivity.
+Ezekiel 12:12	And the prince that is among them shall bear upon his shoulder in the twilight, and shall go forth: they shall dig through the wall to carry out thereby: he shall cover his face, that he see not the ground with his eyes.
+Ezekiel 12:13	My net also will I spread upon him, and he shall be taken in my snare: and I will bring him to Babylon to the land of the Chaldeans; yet shall he not see it, though he shall die there.
+Ezekiel 12:14	And I will scatter toward every wind all that are about him to help him, and all his bands; and I will draw out the sword after them.
+Ezekiel 12:15	And they shall know that I am the LORD, when I shall scatter them among the nations, and disperse them in the countries.
+Ezekiel 12:16	But I will leave a few men of them from the sword, from the famine, and from the pestilence; that they may declare all their abominations among the heathen whither they come; and they shall know that I am the LORD.
+Ezekiel 12:17	Moreover the word of the LORD came to me, saying,
+Ezekiel 12:18	Son of man, eat thy bread with quaking, and drink thy water with trembling and with carefulness;
+Ezekiel 12:19	And say unto the people of the land, Thus saith the Lord GOD of the inhabitants of Jerusalem, and of the land of Israel; They shall eat their bread with carefulness, and drink their water with astonishment, that her land may be desolate from all that is therein, because of the violence of all them that dwell therein.
+Ezekiel 12:20	And the cities that are inhabited shall be laid waste, and the land shall be desolate; and ye shall know that I am the LORD.
+Ezekiel 12:21	And the word of the LORD came unto me, saying,
+Ezekiel 12:22	Son of man, what is that proverb that ye have in the land of Israel, saying, The days are prolonged, and every vision faileth?
+Ezekiel 12:23	Tell them therefore, Thus saith the Lord GOD; I will make this proverb to cease, and they shall no more use it as a proverb in Israel; but say unto them, The days are at hand, and the effect of every vision.
+Ezekiel 12:24	For there shall be no more any vain vision nor flattering divination within the house of Israel.
+Ezekiel 12:25	For I am the LORD: I will speak, and the word that I shall speak shall come to pass; it shall be no more prolonged: for in your days, O rebellious house, will I say the word, and will perform it, saith the Lord GOD.
+Ezekiel 12:26	Again the word of the LORD came to me, saying.
+Ezekiel 12:27	Son of man, behold, they of the house of Israel say, The vision that he seeth is for many days to come, and he prophesieth of the times that are far off.
+Ezekiel 12:28	Therefore say unto them, Thus saith the Lord GOD; There shall none of my words be prolonged any more, but the word which I have spoken shall be done, saith the Lord GOD.
+Ezekiel 13:1	And the word of the LORD came unto me, saying,
+Ezekiel 13:2	Son of man, prophesy against the prophets of Israel that prophesy, and say thou unto them that prophesy out of their own hearts, Hear ye the word of the LORD;
+Ezekiel 13:3	Thus saith the Lord GOD; Woe unto the foolish prophets, that follow their own spirit, and have seen nothing!
+Ezekiel 13:4	O Israel, thy prophets are like the foxes in the deserts.
+Ezekiel 13:5	Ye have not gone up into the gaps, neither made up the hedge for the house of Israel to stand in the battle in the day of the LORD.
+Ezekiel 13:6	They have seen vanity and lying divination, saying, The LORD saith: and the LORD hath not sent them: and they have made others to hope that they would confirm the word.
+Ezekiel 13:7	Have ye not seen a vain vision, and have ye not spoken a lying divination, whereas ye say, The LORD saith it; albeit I have not spoken?
+Ezekiel 13:8	Therefore thus saith the Lord GOD; Because ye have spoken vanity, and seen lies, therefore, behold, I am against you, saith the Lord GOD.
+Ezekiel 13:9	And mine hand shall be upon the prophets that see vanity, and that divine lies: they shall not be in the assembly of my people, neither shall they be written in the writing of the house of Israel, neither shall they enter into the land of Israel; and ye shall know that I am the Lord GOD.
+Ezekiel 13:10	Because, even because they have seduced my people, saying, Peace; and there was no peace; and one built up a wall, and, lo, others daubed it with untempered morter:
+Ezekiel 13:11	Say unto them which daub it with untempered morter, that it shall fall: there shall be an overflowing shower; and ye, O great hailstones, shall fall; and a stormy wind shall rend it.
+Ezekiel 13:12	Lo, when the wall is fallen, shall it not be said unto you, Where is the daubing wherewith ye have daubed it?
+Ezekiel 13:13	Therefore thus saith the Lord GOD; I will even rend it with a stormy wind in my fury; and there shall be an overflowing shower in mine anger, and great hailstones in my fury to consume it.
+Ezekiel 13:14	So will I break down the wall that ye have daubed with untempered morter, and bring it down to the ground, so that the foundation thereof shall be discovered, and it shall fall, and ye shall be consumed in the midst thereof: and ye shall know that I am the LORD.
+Ezekiel 13:15	Thus will I accomplish my wrath upon the wall, and upon them that have daubed it with untempered morter, and will say unto you, The wall is no more, neither they that daubed it;
+Ezekiel 13:16	To wit, the prophets of Israel which prophesy concerning Jerusalem, and which see visions of peace for her, and there is no peace, saith the Lord GOD.
+Ezekiel 13:17	Likewise, thou son of man, set thy face against the daughters of thy people, which prophesy out of their own heart; and prophesy thou against them,
+Ezekiel 13:18	And say, Thus saith the Lord GOD; Woe to the women that sew pillows to all armholes, and make kerchiefs upon the head of every stature to hunt souls! Will ye hunt the souls of my people, and will ye save the souls alive that come unto you?
+Ezekiel 13:19	And will ye pollute me among my people for handfuls of barley and for pieces of bread, to slay the souls that should not die, and to save the souls alive that should not live, by your lying to my people that hear your lies?
+Ezekiel 13:20	Wherefore thus saith the Lord GOD; Behold, I am against your pillows, wherewith ye there hunt the souls to make them fly, and I will tear them from your arms, and will let the souls go, even the souls that ye hunt to make them fly.
+Ezekiel 13:21	Your kerchiefs also will I tear, and deliver my people out of your hand, and they shall be no more in your hand to be hunted; and ye shall know that I am the LORD.
+Ezekiel 13:22	Because with lies ye have made the heart of the righteous sad, whom I have not made sad; and strengthened the hands of the wicked, that he should not return from his wicked way, by promising him life:
+Ezekiel 13:23	Therefore ye shall see no more vanity, nor divine divinations: for I will deliver my people out of your hand: and ye shall know that I am the LORD.
+Ezekiel 14:1	Then came certain of the elders of Israel unto me, and sat before me.
+Ezekiel 14:2	And the word of the LORD came unto me, saying,
+Ezekiel 14:3	Son of man, these men have set up their idols in their heart, and put the stumblingblock of their iniquity before their face: should I be enquired of at all by them?
+Ezekiel 14:4	Therefore speak unto them, and say unto them, Thus saith the Lord GOD; Every man of the house of Israel that setteth up his idols in his heart, and putteth the stumblingblock of his iniquity before his face, and cometh to the prophet; I the LORD will answer him that cometh according to the multitude of his idols;
+Ezekiel 14:5	That I may take the house of Israel in their own heart, because they are all estranged from me through their idols.
+Ezekiel 14:6	Therefore say unto the house of Israel, Thus saith the Lord GOD; Repent, and turn yourselves from your idols; and turn away your faces from all your abominations.
+Ezekiel 14:7	For every one of the house of Israel, or of the stranger that sojourneth in Israel, which separateth himself from me, and setteth up his idols in his heart, and putteth the stumblingblock of his iniquity before his face, and cometh to a prophet to enquire of him concerning me; I the LORD will answer him by myself:
+Ezekiel 14:8	And I will set my face against that man, and will make him a sign and a proverb, and I will cut him off from the midst of my people; and ye shall know that I am the LORD.
+Ezekiel 14:9	And if the prophet be deceived when he hath spoken a thing, I the LORD have deceived that prophet, and I will stretch out my hand upon him, and will destroy him from the midst of my people Israel.
+Ezekiel 14:10	And they shall bear the punishment of their iniquity: the punishment of the prophet shall be even as the punishment of him that seeketh unto him;
+Ezekiel 14:11	That the house of Israel may go no more astray from me, neither be polluted any more with all their transgressions; but that they may be my people, and I may be their God, saith the Lord GOD.
+Ezekiel 14:12	The word of the LORD came again to me, saying,
+Ezekiel 14:13	Son of man, when the land sinneth against me by trespassing grievously, then will I stretch out mine hand upon it, and will break the staff of the bread thereof, and will send famine upon it, and will cut off man and beast from it:
+Ezekiel 14:14	Though these three men, Noah, Daniel, and Job, were in it, they should deliver but their own souls by their righteousness, saith the Lord GOD.
+Ezekiel 14:15	If I cause noisome beasts to pass through the land, and they spoil it, so that it be desolate, that no man may pass through because of the beasts:
+Ezekiel 14:16	Though these three men were in it, as I live, saith the Lord GOD, they shall deliver neither sons nor daughters; they only shall be delivered, but the land shall be desolate.
+Ezekiel 14:17	Or if I bring a sword upon that land, and say, Sword, go through the land; so that I cut off man and beast from it:
+Ezekiel 14:18	Though these three men were in it, as I live, saith the Lord GOD, they shall deliver neither sons nor daughters, but they only shall be delivered themselves.
+Ezekiel 14:19	Or if I send a pestilence into that land, and pour out my fury upon it in blood, to cut off from it man and beast:
+Ezekiel 14:20	Though Noah, Daniel, and Job were in it, as I live, saith the Lord GOD, they shall deliver neither son nor daughter; they shall but deliver their own souls by their righteousness.
+Ezekiel 14:21	For thus saith the Lord GOD; How much more when I send my four sore judgments upon Jerusalem, the sword, and the famine, and the noisome beast, and the pestilence, to cut off from it man and beast?
+Ezekiel 14:22	Yet, behold, therein shall be left a remnant that shall be brought forth, both sons and daughters: behold, they shall come forth unto you, and ye shall see their way and their doings: and ye shall be comforted concerning the evil that I have brought upon Jerusalem, even concerning all that I have brought upon it.
+Ezekiel 14:23	And they shall comfort you, when ye see their ways and their doings: and ye shall know that I have not done without cause all that I have done in it, saith the Lord GOD.
+Ezekiel 15:1	And the word of the LORD came unto me, saying,
+Ezekiel 15:2	Son of man, what is the vine tree more than any tree, or than a branch which is among the trees of the forest?
+Ezekiel 15:3	Shall wood be taken thereof to do any work? or will men take a pin of it to hang any vessel thereon?
+Ezekiel 15:4	Behold, it is cast into the fire for fuel; the fire devoureth both the ends of it, and the midst of it is burned. Is it meet for any work?
+Ezekiel 15:5	Behold, when it was whole, it was meet for no work: how much less shall it be meet yet for any work, when the fire hath devoured it, and it is burned?
+Ezekiel 15:6	Therefore thus saith the Lord GOD; As the vine tree among the trees of the forest, which I have given to the fire for fuel, so will I give the inhabitants of Jerusalem.
+Ezekiel 15:7	And I will set my face against them; they shall go out from one fire, and another fire shall devour them; and ye shall know that I am the LORD, when I set my face against them.
+Ezekiel 15:8	And I will make the land desolate, because they have committed a trespass, saith the Lord GOD.
+Ezekiel 16:1	Again the word of the LORD came unto me, saying,
+Ezekiel 16:2	Son of man, cause Jerusalem to know her abominations,
+Ezekiel 16:3	And say, Thus saith the Lord GOD unto Jerusalem; Thy birth and thy nativity is of the land of Canaan; thy father was an Amorite, and thy mother an Hittite.
+Ezekiel 16:4	And as for thy nativity, in the day thou wast born thy navel was not cut, neither wast thou washed in water to supple thee; thou wast not salted at all, nor swaddled at all.
+Ezekiel 16:5	None eye pitied thee, to do any of these unto thee, to have compassion upon thee; but thou wast cast out in the open field, to the lothing of thy person, in the day that thou wast born.
+Ezekiel 16:6	And when I passed by thee, and saw thee polluted in thine own blood, I said unto thee when thou wast in thy blood, Live; yea, I said unto thee when thou wast in thy blood, Live.
+Ezekiel 16:7	I have caused thee to multiply as the bud of the field, and thou hast increased and waxen great, and thou art come to excellent ornaments: thy breasts are fashioned, and thine hair is grown, whereas thou wast naked and bare.
+Ezekiel 16:8	Now when I passed by thee, and looked upon thee, behold, thy time was the time of love; and I spread my skirt over thee, and covered thy nakedness: yea, I sware unto thee, and entered into a covenant with thee, saith the Lord GOD, and thou becamest mine.
+Ezekiel 16:9	Then washed I thee with water; yea, I throughly washed away thy blood from thee, and I anointed thee with oil.
+Ezekiel 16:10	I clothed thee also with broidered work, and shod thee with badgers' skin, and I girded thee about with fine linen, and I covered thee with silk.
+Ezekiel 16:11	I decked thee also with ornaments, and I put bracelets upon thy hands, and a chain on thy neck.
+Ezekiel 16:12	And I put a jewel on thy forehead, and earrings in thine ears, and a beautiful crown upon thine head.
+Ezekiel 16:13	Thus wast thou decked with gold and silver; and thy raiment was of fine linen, and silk, and broidered work; thou didst eat fine flour, and honey, and oil: and thou wast exceeding beautiful, and thou didst prosper into a kingdom.
+Ezekiel 16:14	And thy renown went forth among the heathen for thy beauty: for it was perfect through my comeliness, which I had put upon thee, saith the Lord GOD.
+Ezekiel 16:15	But thou didst trust in thine own beauty, and playedst the harlot because of thy renown, and pouredst out thy fornications on every one that passed by; his it was.
+Ezekiel 16:16	And of thy garments thou didst take, and deckedst thy high places with divers colours, and playedst the harlot thereupon: the like things shall not come, neither shall it be so.
+Ezekiel 16:17	Thou hast also taken thy fair jewels of my gold and of my silver, which I had given thee, and madest to thyself images of men, and didst commit whoredom with them,
+Ezekiel 16:18	And tookest thy broidered garments, and coveredst them: and thou hast set mine oil and mine incense before them.
+Ezekiel 16:19	My meat also which I gave thee, fine flour, and oil, and honey, wherewith I fed thee, thou hast even set it before them for a sweet savour: and thus it was, saith the Lord GOD.
+Ezekiel 16:20	Moreover thou hast taken thy sons and thy daughters, whom thou hast borne unto me, and these hast thou sacrificed unto them to be devoured. Is this of thy whoredoms a small matter,
+Ezekiel 16:21	That thou hast slain my children, and delivered them to cause them to pass through the fire for them?
+Ezekiel 16:22	And in all thine abominations and thy whoredoms thou hast not remembered the days of thy youth, when thou wast naked and bare, and wast polluted in thy blood.
+Ezekiel 16:23	And it came to pass after all thy wickedness, (woe, woe unto thee! saith the LORD GOD;)
+Ezekiel 16:24	That thou hast also built unto thee an eminent place, and hast made thee an high place in every street.
+Ezekiel 16:25	Thou hast built thy high place at every head of the way, and hast made thy beauty to be abhorred, and hast opened thy feet to every one that passed by, and multiplied thy whoredoms.
+Ezekiel 16:26	Thou hast also committed fornication with the Egyptians thy neighbours, great of flesh; and hast increased thy whoredoms, to provoke me to anger.
+Ezekiel 16:27	Behold, therefore I have stretched out my hand over thee, and have diminished thine ordinary food, and delivered thee unto the will of them that hate thee, the daughters of the Philistines, which are ashamed of thy lewd way.
+Ezekiel 16:28	Thou hast played the whore also with the Assyrians, because thou wast unsatiable; yea, thou hast played the harlot with them, and yet couldest not be satisfied.
+Ezekiel 16:29	Thou hast moreover multiplied thy fornication in the land of Canaan unto Chaldea; and yet thou wast not satisfied therewith.
+Ezekiel 16:30	How weak is thine heart, saith the LORD GOD, seeing thou doest all these things, the work of an imperious whorish woman;
+Ezekiel 16:31	In that thou buildest thine eminent place in the head of every way, and makest thine high place in every street; and hast not been as an harlot, in that thou scornest hire;
+Ezekiel 16:32	But as a wife that committeth adultery, which taketh strangers instead of her husband!
+Ezekiel 16:33	They give gifts to all whores: but thou givest thy gifts to all thy lovers, and hirest them, that they may come unto thee on every side for thy whoredom.
+Ezekiel 16:34	And the contrary is in thee from other women in thy whoredoms, whereas none followeth thee to commit whoredoms: and in that thou givest a reward, and no reward is given unto thee, therefore thou art contrary.
+Ezekiel 16:35	Wherefore, O harlot, hear the word of the LORD:
+Ezekiel 16:36	Thus saith the Lord GOD; Because thy filthiness was poured out, and thy nakedness discovered through thy whoredoms with thy lovers, and with all the idols of thy abominations, and by the blood of thy children, which thou didst give unto them;
+Ezekiel 16:37	Behold, therefore I will gather all thy lovers, with whom thou hast taken pleasure, and all them that thou hast loved, with all them that thou hast hated; I will even gather them round about against thee, and will discover thy nakedness unto them, that they may see all thy nakedness.
+Ezekiel 16:38	And I will judge thee, as women that break wedlock and shed blood are judged; and I will give thee blood in fury and jealousy.
+Ezekiel 16:39	And I will also give thee into their hand, and they shall throw down thine eminent place, and shall break down thy high places: they shall strip thee also of thy clothes, and shall take thy fair jewels, and leave thee naked and bare.
+Ezekiel 16:40	They shall also bring up a company against thee, and they shall stone thee with stones, and thrust thee through with their swords.
+Ezekiel 16:41	And they shall burn thine houses with fire, and execute judgments upon thee in the sight of many women: and I will cause thee to cease from playing the harlot, and thou also shalt give no hire any more.
+Ezekiel 16:42	So will I make my fury toward thee to rest, and my jealousy shall depart from thee, and I will be quiet, and will be no more angry.
+Ezekiel 16:43	Because thou hast not remembered the days of thy youth, but hast fretted me in all these things; behold, therefore I also will recompense thy way upon thine head, saith the Lord GOD: and thou shalt not commit this lewdness above all thine abominations.
+Ezekiel 16:44	Behold, every one that useth proverbs shall use this proverb against thee, saying, As is the mother, so is her daughter.
+Ezekiel 16:45	Thou art thy mother's daughter, that lotheth her husband and her children; and thou art the sister of thy sisters, which lothed their husbands and their children: your mother was an Hittite, and your father an Amorite.
+Ezekiel 16:46	And thine elder sister is Samaria, she and her daughters that dwell at thy left hand: and thy younger sister, that dwelleth at thy right hand, is Sodom and her daughters.
+Ezekiel 16:47	Yet hast thou not walked after their ways, nor done after their abominations: but, as if that were a very little thing, thou wast corrupted more than they in all thy ways.
+Ezekiel 16:48	As I live, saith the Lord GOD, Sodom thy sister hath not done, she nor her daughters, as thou hast done, thou and thy daughters.
+Ezekiel 16:49	Behold, this was the iniquity of thy sister Sodom, pride, fulness of bread, and abundance of idleness was in her and in her daughters, neither did she strengthen the hand of the poor and needy.
+Ezekiel 16:50	And they were haughty, and committed abomination before me: therefore I took them away as I saw good.
+Ezekiel 16:51	Neither hath Samaria committed half of thy sins; but thou hast multiplied thine abominations more than they, and hast justified thy sisters in all thine abominations which thou hast done.
+Ezekiel 16:52	Thou also, which hast judged thy sisters, bear thine own shame for thy sins that thou hast committed more abominable than they: they are more righteous than thou: yea, be thou confounded also, and bear thy shame, in that thou hast justified thy sisters.
+Ezekiel 16:53	When I shall bring again their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, then will I bring again the captivity of thy captives in the midst of them:
+Ezekiel 16:54	That thou mayest bear thine own shame, and mayest be confounded in all that thou hast done, in that thou art a comfort unto them.
+Ezekiel 16:55	When thy sisters, Sodom and her daughters, shall return to their former estate, and Samaria and her daughters shall return to their former estate, then thou and thy daughters shall return to your former estate.
+Ezekiel 16:56	For thy sister Sodom was not mentioned by thy mouth in the day of thy pride,
+Ezekiel 16:57	Before thy wickedness was discovered, as at the time of thy reproach of the daughters of Syria, and all that are round about her, the daughters of the Philistines, which despise thee round about.
+Ezekiel 16:58	Thou hast borne thy lewdness and thine abominations, saith the LORD.
+Ezekiel 16:59	For thus saith the Lord GOD; I will even deal with thee as thou hast done, which hast despised the oath in breaking the covenant.
+Ezekiel 16:60	Nevertheless I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.
+Ezekiel 16:61	Then thou shalt remember thy ways, and be ashamed, when thou shalt receive thy sisters, thine elder and thy younger: and I will give them unto thee for daughters, but not by thy covenant.
+Ezekiel 16:62	And I will establish my covenant with thee; and thou shalt know that I am the LORD:
+Ezekiel 16:63	That thou mayest remember, and be confounded, and never open thy mouth any more because of thy shame, when I am pacified toward thee for all that thou hast done, saith the Lord GOD.
+Ezekiel 17:1	And the word of the LORD came unto me, saying,
+Ezekiel 17:2	Son of man, put forth a riddle, and speak a parable unto the house of Israel;
+Ezekiel 17:3	And say, Thus saith the Lord GOD; A great eagle with great wings, longwinged, full of feathers, which had divers colours, came unto Lebanon, and took the highest branch of the cedar:
+Ezekiel 17:4	He cropped off the top of his young twigs, and carried it into a land of traffick; he set it in a city of merchants.
+Ezekiel 17:5	He took also of the seed of the land, and planted it in a fruitful field; he placed it by great waters, and set it as a willow tree.
+Ezekiel 17:6	And it grew, and became a spreading vine of low stature, whose branches turned toward him, and the roots thereof were under him: so it became a vine, and brought forth branches, and shot forth sprigs.
+Ezekiel 17:7	There was also another great eagle with great wings and many feathers: and, behold, this vine did bend her roots toward him, and shot forth her branches toward him, that he might water it by the furrows of her plantation.
+Ezekiel 17:8	It was planted in a good soil by great waters, that it might bring forth branches, and that it might bear fruit, that it might be a goodly vine.
+Ezekiel 17:9	Say thou, Thus saith the Lord GOD; Shall it prosper? shall he not pull up the roots thereof, and cut off the fruit thereof, that it wither? it shall wither in all the leaves of her spring, even without great power or many people to pluck it up by the roots thereof.
+Ezekiel 17:10	Yea, behold, being planted, shall it prosper? shall it not utterly wither, when the east wind toucheth it? it shall wither in the furrows where it grew.
+Ezekiel 17:11	Moreover the word of the LORD came unto me, saying,
+Ezekiel 17:12	Say now to the rebellious house, Know ye not what these things mean? tell them, Behold, the king of Babylon is come to Jerusalem, and hath taken the king thereof, and the princes thereof, and led them with him to Babylon;
+Ezekiel 17:13	And hath taken of the king's seed, and made a covenant with him, and hath taken an oath of him: he hath also taken the mighty of the land:
+Ezekiel 17:14	That the kingdom might be base, that it might not lift itself up, but that by keeping of his covenant it might stand.
+Ezekiel 17:15	But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and much people. Shall he prosper? shall he escape that doeth such things? or shall he break the covenant, and be delivered?
+Ezekiel 17:16	As I live, saith the Lord GOD, surely in the place where the king dwelleth that made him king, whose oath he despised, and whose covenant he brake, even with him in the midst of Babylon he shall die.
+Ezekiel 17:17	Neither shall Pharaoh with his mighty army and great company make for him in the war, by casting up mounts, and building forts, to cut off many persons:
+Ezekiel 17:18	Seeing he despised the oath by breaking the covenant, when, lo, he had given his hand, and hath done all these things, he shall not escape.
+Ezekiel 17:19	Therefore thus saith the Lord GOD; As I live, surely mine oath that he hath despised, and my covenant that he hath broken, even it will I recompense upon his own head.
+Ezekiel 17:20	And I will spread my net upon him, and he shall be taken in my snare, and I will bring him to Babylon, and will plead with him there for his trespass that he hath trespassed against me.
+Ezekiel 17:21	And all his fugitives with all his bands shall fall by the sword, and they that remain shall be scattered toward all winds: and ye shall know that I the LORD have spoken it.
+Ezekiel 17:22	Thus saith the Lord GOD; I will also take of the highest branch of the high cedar, and will set it; I will crop off from the top of his young twigs a tender one, and will plant it upon an high mountain and eminent:
+Ezekiel 17:23	In the mountain of the height of Israel will I plant it: and it shall bring forth boughs, and bear fruit, and be a goodly cedar: and under it shall dwell all fowl of every wing; in the shadow of the branches thereof shall they dwell.
+Ezekiel 17:24	And all the trees of the field shall know that I the LORD have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish: I the LORD have spoken and have done it.
+Ezekiel 18:1	The word of the LORD came unto me again, saying,
+Ezekiel 18:2	What mean ye, that ye use this proverb concerning the land of Israel, saying, The fathers have eaten sour grapes, and the children's teeth are set on edge?
+Ezekiel 18:3	As I live, saith the Lord GOD, ye shall not have occasion any more to use this proverb in Israel.
+Ezekiel 18:4	Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine: the soul that sinneth, it shall die.
+Ezekiel 18:5	But if a man be just, and do that which is lawful and right,
+Ezekiel 18:6	And hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, neither hath defiled his neighbour's wife, neither hath come near to a menstruous woman,
+Ezekiel 18:7	And hath not oppressed any, but hath restored to the debtor his pledge, hath spoiled none by violence, hath given his bread to the hungry, and hath covered the naked with a garment;
+Ezekiel 18:8	He that hath not given forth upon usury, neither hath taken any increase, that hath withdrawn his hand from iniquity, hath executed true judgment between man and man,
+Ezekiel 18:9	Hath walked in my statutes, and hath kept my judgments, to deal truly; he is just, he shall surely live, saith the Lord GOD.
+Ezekiel 18:10	If he beget a son that is a robber, a shedder of blood, and that doeth the like to any one of these things,
+Ezekiel 18:11	And that doeth not any of those duties, but even hath eaten upon the mountains, and defiled his neighbour's wife,
+Ezekiel 18:12	Hath oppressed the poor and needy, hath spoiled by violence, hath not restored the pledge, and hath lifted up his eyes to the idols, hath committed abomination,
+Ezekiel 18:13	Hath given forth upon usury, and hath taken increase: shall he then live? he shall not live: he hath done all these abominations; he shall surely die; his blood shall be upon him.
+Ezekiel 18:14	Now, lo, if he beget a son, that seeth all his father's sins which he hath done, and considereth, and doeth not such like,
+Ezekiel 18:15	That hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, hath not defiled his neighbour's wife,
+Ezekiel 18:16	Neither hath oppressed any, hath not withholden the pledge, neither hath spoiled by violence, but hath given his bread to the hungry, and hath covered the naked with a garment,
+Ezekiel 18:17	That hath taken off his hand from the poor, that hath not received usury nor increase, hath executed my judgments, hath walked in my statutes; he shall not die for the iniquity of his father, he shall surely live.
+Ezekiel 18:18	As for his father, because he cruelly oppressed, spoiled his brother by violence, and did that which is not good among his people, lo, even he shall die in his iniquity.
+Ezekiel 18:19	Yet say ye, Why? doth not the son bear the iniquity of the father? When the son hath done that which is lawful and right, and hath kept all my statutes, and hath done them, he shall surely live.
+Ezekiel 18:20	The soul that sinneth, it shall die. The son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son: the righteousness of the righteous shall be upon him, and the wickedness of the wicked shall be upon him.
+Ezekiel 18:21	But if the wicked will turn from all his sins that he hath committed, and keep all my statutes, and do that which is lawful and right, he shall surely live, he shall not die.
+Ezekiel 18:22	All his transgressions that he hath committed, they shall not be mentioned unto him: in his righteousness that he hath done he shall live.
+Ezekiel 18:23	Have I any pleasure at all that the wicked should die? saith the Lord GOD: and not that he should return from his ways, and live?
+Ezekiel 18:24	But when the righteous turneth away from his righteousness, and committeth iniquity, and doeth according to all the abominations that the wicked man doeth, shall he live? All his righteousness that he hath done shall not be mentioned: in his trespass that he hath trespassed, and in his sin that he hath sinned, in them shall he die.
+Ezekiel 18:25	Yet ye say, The way of the LORD is not equal. Hear now, O house of Israel; Is not my way equal? are not your ways unequal?
+Ezekiel 18:26	When a righteous man turneth away from his righteousness, and committeth iniquity, and dieth in them; for his iniquity that he hath done shall he die.
+Ezekiel 18:27	Again, when the wicked man turneth away from his wickedness that he hath committed, and doeth that which is lawful and right, he shall save his soul alive.
+Ezekiel 18:28	Because he considereth, and turneth away from all his transgressions that he hath committed, he shall surely live, he shall not die.
+Ezekiel 18:29	Yet saith the house of Israel, The way of the LORD is not equal. O house of Israel, are not my ways equal? are not your ways unequal?
+Ezekiel 18:30	Therefore I will judge you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn yourselves from all your transgressions; so iniquity shall not be your ruin.
+Ezekiel 18:31	Cast away from you all your transgressions, whereby ye have transgressed; and make you a new heart and a new spirit: for why will ye die, O house of Israel?
+Ezekiel 18:32	For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn yourselves, and live ye.
+Ezekiel 19:1	Moreover take thou up a lamentation for the princes of Israel,
+Ezekiel 19:2	And say, What is thy mother? A lioness: she lay down among lions, she nourished her whelps among young lions.
+Ezekiel 19:3	And she brought up one of her whelps: it became a young lion, and it learned to catch the prey; it devoured men.
+Ezekiel 19:4	The nations also heard of him; he was taken in their pit, and they brought him with chains unto the land of Egypt.
+Ezekiel 19:5	Now when she saw that she had waited, and her hope was lost, then she took another of her whelps, and made him a young lion.
+Ezekiel 19:6	And he went up and down among the lions, he became a young lion, and learned to catch the prey, and devoured men.
+Ezekiel 19:7	And he knew their desolate palaces, and he laid waste their cities; and the land was desolate, and the fulness thereof, by the noise of his roaring.
+Ezekiel 19:8	Then the nations set against him on every side from the provinces, and spread their net over him: he was taken in their pit.
+Ezekiel 19:9	And they put him in ward in chains, and brought him to the king of Babylon: they brought him into holds, that his voice should no more be heard upon the mountains of Israel.
+Ezekiel 19:10	Thy mother is like a vine in thy blood, planted by the waters: she was fruitful and full of branches by reason of many waters.
+Ezekiel 19:11	And she had strong rods for the sceptres of them that bare rule, and her stature was exalted among the thick branches, and she appeared in her height with the multitude of her branches.
+Ezekiel 19:12	But she was plucked up in fury, she was cast down to the ground, and the east wind dried up her fruit: her strong rods were broken and withered; the fire consumed them.
+Ezekiel 19:13	And now she is planted in the wilderness, in a dry and thirsty ground.
+Ezekiel 19:14	And fire is gone out of a rod of her branches, which hath devoured her fruit, so that she hath no strong rod to be a sceptre to rule. This is a lamentation, and shall be for a lamentation.
+Ezekiel 20:1	And it came to pass in the seventh year, in the fifth month, the tenth day of the month, that certain of the elders of Israel came to enquire of the LORD, and sat before me.
+Ezekiel 20:2	Then came the word of the LORD unto me, saying,
+Ezekiel 20:3	Son of man, speak unto the elders of Israel, and say unto them, Thus saith the Lord GOD; Are ye come to enquire of me? As I live, saith the Lord GOD, I will not be enquired of by you.
+Ezekiel 20:4	Wilt thou judge them, son of man, wilt thou judge them? cause them to know the abominations of their fathers:
+Ezekiel 20:5	And say unto them, Thus saith the Lord GOD; In the day when I chose Israel, and lifted up mine hand unto the seed of the house of Jacob, and made myself known unto them in the land of Egypt, when I lifted up mine hand unto them, saying, I am the LORD your God;
+Ezekiel 20:6	In the day that I lifted up mine hand unto them, to bring them forth of the land of Egypt into a land that I had espied for them, flowing with milk and honey, which is the glory of all lands:
+Ezekiel 20:7	Then said I unto them, Cast ye away every man the abominations of his eyes, and defile not yourselves with the idols of Egypt: I am the LORD your God.
+Ezekiel 20:8	But they rebelled against me, and would not hearken unto me: they did not every man cast away the abominations of their eyes, neither did they forsake the idols of Egypt: then I said, I will pour out my fury upon them, to accomplish my anger against them in the midst of the land of Egypt.
+Ezekiel 20:9	But I wrought for my name's sake, that it should not be polluted before the heathen, among whom they were, in whose sight I made myself known unto them, in bringing them forth out of the land of Egypt.
+Ezekiel 20:10	Wherefore I caused them to go forth out of the land of Egypt, and brought them into the wilderness.
+Ezekiel 20:11	And I gave them my statutes, and shewed them my judgments, which if a man do, he shall even live in them.
+Ezekiel 20:12	Moreover also I gave them my sabbaths, to be a sign between me and them, that they might know that I am the LORD that sanctify them.
+Ezekiel 20:13	But the house of Israel rebelled against me in the wilderness: they walked not in my statutes, and they despised my judgments, which if a man do, he shall even live in them; and my sabbaths they greatly polluted: then I said, I would pour out my fury upon them in the wilderness, to consume them.
+Ezekiel 20:14	But I wrought for my name's sake, that it should not be polluted before the heathen, in whose sight I brought them out.
+Ezekiel 20:15	Yet also I lifted up my hand unto them in the wilderness, that I would not bring them into the land which I had given them, flowing with milk and honey, which is the glory of all lands;
+Ezekiel 20:16	Because they despised my judgments, and walked not in my statutes, but polluted my sabbaths: for their heart went after their idols.
+Ezekiel 20:17	Nevertheless mine eye spared them from destroying them, neither did I make an end of them in the wilderness.
+Ezekiel 20:18	But I said unto their children in the wilderness, Walk ye not in the statutes of your fathers, neither observe their judgments, nor defile yourselves with their idols:
+Ezekiel 20:19	I am the LORD your God; walk in my statutes, and keep my judgments, and do them;
